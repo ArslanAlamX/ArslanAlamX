@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Arslan Alam
-- 👀 I’m in learning phase.
+- 👀 Student at Babu Banarasi Das.
 - 🌱 I’m currently learning to code.
 - 💞️ I’m looking to internships 
 - 📫  reach me instagram @arslanalam_
